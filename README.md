@@ -1,1 +1,1 @@
-# batu-guntung-kertas
+# ajaib
